@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kalhor-ff
+- 👀 I’m interested in LBC crypto and trading 
+- 🌱 I’m currently learning ichimoku
